@@ -25,4 +25,4 @@
 
 > <a href="https://github.com/bademeistertv">@bademeistertv</a> - Used by All.
 
-⤷ contains <a href="https://bademeistertv.carrd.co">carrd</a> and <a href="https://bademeistertv.straw.page">strawpage</a> .
+⤷ contains <a href="https://bademeistertv.carrd.co">sys carrd</a> and <a href="https://bademeistertv.straw.page">sys strawpage</a> .
