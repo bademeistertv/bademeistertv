@@ -4,7 +4,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&redirect=true)
 
-## Github information
  ︶︶︶
 > <a href="https://github.com/Metadow">@Metadow</a> - Used by Pawn, Xamp, Sam, Shadow and Metal Sonic.
 
