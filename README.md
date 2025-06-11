@@ -6,7 +6,7 @@
 ***
 > <a href="https://github.com/Metadow">@Metadow</a> - Used by Pawn, Xamp, Sam, Shadow and Metal Sonic.
 
-⤷ mostly used to follow friends who also have a github, also contains a <a href="https://superfgt.straw.page">strawpage</a> , <a href="https://metadow.atabook.org">atabook</a> and <a href="https://rentry.co/super-fgt">rentry</a> .
+⤷ mostly used to follow friends who also have a github, also contains a <a href="https://superfgt.straw.page">strawpage</a> , <a href="https://metadow.atabook.org">atabook</a> and so called main <a href="https://rentry.co/super-fgt">rentry</a> .
 
  ︵︵︵
 
