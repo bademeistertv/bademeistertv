@@ -16,6 +16,12 @@
 
  — — —
 
+> <a href="https://github.com/Bomboclapclap">@Bomboclapclap</a> - Used by Bomboclat.
+
+⤷ for bomboclat because he plays alot of ponytown and wants to collect followers and friends .
+
+ — — —
+
 > <a href="https://github.com/Jesus-christi">@Jesus-Christi</a> - Used by Jesus Christi.
 
 ⤷ here for christi because he enjoyed ponytown to the fullest and wanted to fill an <a href="https://jesus-christi.atabook.org">atabook</a> aswell .
