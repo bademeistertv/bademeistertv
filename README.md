@@ -23,7 +23,7 @@
 
  — — —
 
-> <a href="https://github.com/Jesus-christi">@Jesus-Christi</a> - Used by Jesus Christi.
+> <a href="https://github.com/Jesus-christi">@Jesus-Christi</a> - Used by Jesus Christi. **This account is lost media, sorry. lost the email access.**
 
 ⤷ here for christi because he enjoyed ponytown to the fullest and wanted to fill an <a href="https://jesus-christi.atabook.org">atabook</a> aswell .
 
@@ -38,7 +38,7 @@
  ︵︵︵
 > Our Interests! non-sorted.
 
-⤷ **Sky: Cotl**, **Big Mouth**, Cult of the Lamb, South Park, Pony Town, Ninjago 2011, The Prince from Egypt, Klaus 2019, Max design pro, HfjONE, The Power of Two, Tetris 2002, Crash Bandicoot 2007, Villainous 2017, Shadow the hedgehog 2005, Girl from nowhere, Beastars, Dinosaurs
+⤷ Sky: Cotl, Big Mouth, Cult of the Lamb, South Park, Pony Town, Ninjago 2011, The Prince from Egypt, Klaus 2019, Max design pro, HfjONE, The Power of Two, Tetris 2002, Crash Bandicoot 2007, Villainous 2017, Shadow the hedgehog 2005, Girl from nowhere, Beastars, Dinosaurs, genshin impact, Made in Abyss Anime
 and more uncounted.
 
  ︶︶︶
